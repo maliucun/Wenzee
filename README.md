@@ -1,7 +1,7 @@
 # Yang, Xinwen  / 杨心文
 
 ## About me
-An electrical enineer worked in a electrical motor company.
+An electrical enineer worked in an electrical motor company.
 
 ## Expierence
 
