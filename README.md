@@ -19,8 +19,10 @@ An electrical enineer worked in a electrical motor company.
 ## Awards
 ### MVES
 most value edest son
+
 Won the MVES for many years.
-霸榜妈妈的最佳大儿子。
+
+霸榜妈妈的最佳大儿子
 
 
 ## Contacts
